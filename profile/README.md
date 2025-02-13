@@ -1,6 +1,6 @@
 # XCIPTV APK 7.0 Para Android (Novo) Grátis Baixar
 
-| Nome | [PPCine APK](https://apksil.com/xciptv-player-apk/) |
+| Nome | [XCIPTV APK](https://apksil.com/xciptv-player-apk/) |
 |--------------|-------|
 | ![xclip3](https://github.com/user-attachments/assets/20c792fc-3ede-41c9-8bf4-ef8fd40629a9) | <a href="https://apksil.com/xciptv-player-apk/">![download 1](https://github.com/user-attachments/assets/63059ddb-640f-4061-a534-b77f4c7a2039)</a> |
 | Versão | v7.0|
